@@ -1,0 +1,2 @@
+# ghadi
+Aku ingin maju
